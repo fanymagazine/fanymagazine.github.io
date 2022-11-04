@@ -1,0 +1,1 @@
+# fanymagazine.github.io
